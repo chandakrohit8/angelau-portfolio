@@ -1,1 +1,1 @@
-# Basic Lecture Profolio
+# Basic Lecture Portfolio
